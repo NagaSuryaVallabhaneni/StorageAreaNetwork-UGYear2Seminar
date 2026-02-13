@@ -1,0 +1,1 @@
+First ever seminar, back in 2016. Learner mistakes, please use the link https://docs.google.com/presentation/d/1p8oXU0AgH0-7BrpuofVqzTTo_wPDvkPx/edit?usp=sharing&ouid=110366261663588019921&rtpof=true&sd=true, to view the PPT as file size is more can't be uploaded.
